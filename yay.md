@@ -2,7 +2,7 @@
 ## For St. Louis residents
 ## Don't forget about Tennessee!!
 
-I started this ** crazy ** whirlwind class last week. Life _Monday through Thursday_ will now be spent entirely on my computer. ~~Life will go on.~~
+I started this **crazy** whirlwind class last week. Life _Monday through Thursday_ will now be spent entirely on my computer. ~~Life will go on.~~
 
 add a cute dog picture
 
