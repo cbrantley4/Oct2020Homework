@@ -15,3 +15,9 @@ My family members:
     1. Calvin Cornman
     2. Brantley Cornman
 4. Melissa O'Connor
+
+My favorite hobbies:
+- Running
+- Coding
+- Exercising
+- Teaching
