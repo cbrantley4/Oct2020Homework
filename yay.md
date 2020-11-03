@@ -12,6 +12,6 @@ My family members:
 1. Mark Brantley
 2. Susan Brantley
 3. Alyson Cornman
-  1. Calvin Cornman
-  2. Brantley Cornman
+    1. Calvin Cornman
+    2. Brantley Cornman
 4. Melissa O'Connor
